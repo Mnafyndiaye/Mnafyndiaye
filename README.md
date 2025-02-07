@@ -1,5 +1,5 @@
 # 💫 About Me:
-je suis actuellement étudiante en informatique à l'esp, curieuse et joviale<br>j'adore le sport, la musique, la dance.<br>je suis ouvert d'esprit et j'aime travailler en groupe <br>j'aime faire des des affiches.  <br> 
+je suis actuellement étudiante en informatique à l'esp, curieuse et joviale<br>j'adore le sport, la musique, la dance.<br>je suis ouvert d'esprit et j'aime travailler en groupe  
 
 
 ## 🌐 Socials:
